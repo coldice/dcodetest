@@ -4,4 +4,4 @@ sie hat mehrere zeilen
 hier ist die vierte
 und noch eine
 
-änder ich niemals MAN, ich schwör
+Aender ich niemals MAN, ich schwoer
